@@ -4,7 +4,7 @@ i have sooo much autism. i'm a system too but i'm mostly frontstuck ahhhhhhh
 
 > _**dni**_ forsaken, homestuck, cookie run (kingdom), ranfren.
 >
-> _**iwc**_ dandys world and fpe (these fandoms lowkey kinda suck and it's the two fandoms i'm in AHHHHHHHHH)
+> _**iwc**_ dandys world and fpe (these fandoms lowkey kinda suck and it's the two of the main fandoms i'm in AHHHHHHHHH)
 
 **i am an adult**. please don't make sexual jokes around me, especially if you're younger than me. it's mad uncomfortable
 
